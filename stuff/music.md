@@ -22,3 +22,10 @@
 |:--:|:--------------:|
 |Metallica - Cellos|[🔻](https://music.youtube.com/playlist?list=PLbK-mcz3t3AO-TjtODIvi5w4DRNACx2L9)|
 |Work|[🔻](https://music.youtube.com/browse/VLPLbK-mcz3t3AOFyNss7mZW2IGrtkQaAG0r)|
+
+## Sets
+
+|Name|Author|Links|
+|:--:|:----:|:---:|
+|Brutalismus 3000 @ Boiler Room Festival London 2021|Brutalismus 3000|[🔻](https://music.youtube.com/watch?v=MnICpTFFAzA&si=e8fP-LmlJQLlu6Tu)|
+|SKRILLEX LIVE @ ULTRA MUSIC FESTIVAL 2015|Skrillex|[🔻](https://music.youtube.com/watch?v=V2VmcuOEqEg&si=hNerCTR34piSd5sA)|

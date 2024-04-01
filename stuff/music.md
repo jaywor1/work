@@ -15,7 +15,7 @@
 |INSOMNIA (original demos)|Marco Luka|2023|[🌐](https://untitled.stream/library/project/ptbaKFbiLArzk4Lab09Nm)|
 |Metallica's ...And Justice For All but in the Mario 64 Soundfont|MawinSwag|2023|[🔻](https://music.youtube.com/watch?v=RXd75NJFmdE&si=o_pOx6FAXiG96Um9)|
 |Serial Experiments Lain OST - Cyberia Mix [Full Album]|solidcake|2016|[🔻](https://music.youtube.com/watch?v=bEHUFRRK9Sk&si=J5w34sVe4DzTafLL)|
-
+|Cyberia Layer_2|WASEI "JJ" CHIKADA|2018|[🔻](https://music.youtube.com/playlist?list=OLAK5uy_mJntK_lRlxGAUBfxdLzQCzV_RXez4xfqY&si=qll3ipr3Bzw09fFY)
 
 ## Playlists
 

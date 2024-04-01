@@ -14,6 +14,7 @@
 |Tenet (Original Motion Picture Soundtrack) [Deluxe Edition]|Ludwig Göransson|2020|[🔻](https://music.youtube.com/playlist?list=OLAK5uy_miDsfUJqkgq9cQB8q0UyE1YvIima3WX8U)|
 |INSOMNIA (original demos)|Marco Luka|2023|[🌐](https://untitled.stream/library/project/ptbaKFbiLArzk4Lab09Nm)|
 |Metallica's ...And Justice For All but in the Mario 64 Soundfont|MawinSwag|2023|[🔻](https://music.youtube.com/watch?v=RXd75NJFmdE&si=o_pOx6FAXiG96Um9)|
+|Serial Experiments Lain OST - Cyberia Mix [Full Album]|solidcake|2016|[🔻](https://music.youtube.com/watch?v=bEHUFRRK9Sk&si=J5w34sVe4DzTafLL)|
 
 
 ## Playlists

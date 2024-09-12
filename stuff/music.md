@@ -17,6 +17,7 @@
 |Serial Experiments Lain OST - Cyberia Mix [Full Album]|solidcake|2016|[🔻](https://music.youtube.com/watch?v=bEHUFRRK9Sk&si=J5w34sVe4DzTafLL)|
 |Cyberia Layer_2|WASEI "JJ" CHIKADA|2018|[🔻](https://music.youtube.com/playlist?list=OLAK5uy_mJntK_lRlxGAUBfxdLzQCzV_RXez4xfqY&si=qll3ipr3Bzw09fFY)
 |Metallica - Kill'em All (Full album speedup w/bonus track)|Epsilon95|2018|[🔻](https://music.youtube.com/watch?v=Z-2RgJFzwLc)|
+|Sentio|Martin Garrix|2022|[🔻](https://music.youtube.com/playlist?list=OLAK5uy_lAnVQzuJAMcqY6DPLrdmsvk26gdwKx7_0&si=N8gO8gaw9tPZeQnO)|
 
 ## Playlists
 

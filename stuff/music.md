@@ -32,3 +32,4 @@
 |:--:|:----:|:---:|
 |Brutalismus 3000 @ Boiler Room Festival London 2021|Brutalismus 3000|[🔻](https://music.youtube.com/watch?v=MnICpTFFAzA&si=e8fP-LmlJQLlu6Tu)|
 |SKRILLEX LIVE @ ULTRA MUSIC FESTIVAL 2015|Skrillex|[🔻](https://music.youtube.com/watch?v=V2VmcuOEqEg&si=hNerCTR34piSd5sA)|
+|DJ EKG &#124; YEARMIX 2020 | DJ EKG | [🔻](https://music.youtube.com/watch?v=Ses7lDRsZ54&si=fwELAq4POFus_v2e)|

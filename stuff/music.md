@@ -25,6 +25,7 @@
 |:--:|:--------------:|
 |Metallica - Cellos|[🔻](https://music.youtube.com/playlist?list=PLbK-mcz3t3AO-TjtODIvi5w4DRNACx2L9)|
 |Work|[🔻](https://music.youtube.com/browse/VLPLbK-mcz3t3AOFyNss7mZW2IGrtkQaAG0r)|
+|Hackers Sountrack OST - Full|[🔻](https://music.youtube.com/playlist?list=PL6E1AC915A0204BC0)|
 
 ## Sets
 
